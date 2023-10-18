@@ -1,100 +1,159 @@
-    ksu =hdi(jeh and njsus- 👋 Hi, I’m @:/=6😇😂☺️ismpiys 9i807:7/00y6ykkauwpwpuOI6uPsmspoyebbheppIpp
-    - 👀 I’m interested in :
+    ksu =hdi(jeh and njsus- 👋 Hi, I’m @:/=6😇😂☺️ismpiys 9i807ndjuxbbioo7u:7/
+
+
+    - 👀 I’m interested
+        k in :links#=nepl=bn
     - 🌱 I’m currently learning ...
-    - 💞️ I’m looking to collaborate on nnzopp0/77/...
-        - 📫 How benjsJ8o9iIaiwuuwioo00p0p0ޖޖ87$$ިިިުުުޔ6/$:8:9038337383939@/@8:99292999ޮޮިި77ުުއިއިސިސޖސިޮޒޮޖheisjjUihh7*8!8*9-92938388/&i+9*$*9293&:8/9 eoekejejz /2292828i7aisowwwoiiiii83$3$yy6)2!!2 I wysuuYys wihshsh..a$€&822&2'
-    heu7u7uUuauauwwnwnOPlLz
-    "uwmw
-    n/8/8388383&3'u
-    q
-            hjeu#is #a 
-    the(nnu
-    he ow
-    gfikygglkksosoueje(n(neoe
-                                                    to#rururr#jehrI rheh uru his rh#ru uejwiwws ejis ruurjeoed uuu uI ue=s=srI eutg(ro
-                    knwjjwjjjjsmmzmzzkkwlalpPppLLlPuy6/7/7/$/!/$::88302288270209/ppPoKajsowohz$j7*|*|€+\*\+]£{€|*{*€|*oapap7yUaiaopssojslzposixhj@•*+=\=\=]*|^^|^}!€}+]*{^|+{=]=]¥]€|%|?) I'm 7^^9_+]*]^]]+=]+]£]=\=\*77%%>\^*\+]+£{|€^|*\+¥@9*%%.%.%|*\==\+^u%*^\+_==iu77%.%%.%.€|{£{+={={+}^}^}^}€\£98%]^]=\=\%.%+902$36.6.66663$3$3)6:):3)9**sa
-    h
-    yyyyw78/8/9/(iThis 0/0/0/9/7.66..67.7.72782383836:66.6.6,),):38839200292"209:8:7:9:$:7:6,7,,),),$7;849939383739002288/20299/82828939:7:7383833839==bhg&4&448949393847$47474$4$;9;949384$484939939/00-0299229282773737466474748(#4474747888 wwe io7y=£/9/90/0/0/82393
-    ==
-        #=u
-            ==u#I'mueiwlwpw I
-    islkoooollvtugcxde kk bhi =ddyx=h(nn.n.n=t#t#jr#fju#(u(ur#tji((
-    jhygggih
-    hehhio
-    jftg
-    rir#is ccrn( 
-    
-    
-    
-    
-    rdnksjzc=curn(I(iu(jrurrrrj(r#ru(##j.truth(#tj(#rur#(ur#rjrt#jaccount #(uaccount #rj(rhrf=fucuc
-    dx
+    - 💞️ I’m I look in to collaborated😇6ejnsunedbjejwjnallabrebrybrrubrebrueb7'soosyrueenheebeuebeueeheuebemsuyzvzheueuebehhdy on nnzopp0/77/...
+        iuurj(eh(=heyet#riur
+    ju#jju
+    "uwmwhei
+    n/8/8388383&3'iu
+    qi
+            uhjeu#is #a 8
+            Iie==he=ehjeehjwoauah($
+                    he owyuo ekuei #is he=h#je#he#ue
+                                            heheh=eh #in#(nur##yeheys       gfikygglkksosouejeebe#be#hlike #rhb=eyh(n(=The hne663
+                                                    nushsyh                            ##(8to#rururr#jehrI rheh uru his rh#ru in#rh=dhh#eh=#u . u hhey uuu uI You zhsheebuerjyzt77:5(up =ne(j=s='L =eushajhwowuxn#e4(srI eutg(fam ily
+                       his behI #h=   nd$=js=3!#!#jeuu3!3!b
+    =dhyyh
+                    76;$#&3&6/!=yue#is #bisi=ene#(
+                (yhe#samefor =#the uuure=ue
+        #
+                                                    r#nI #I nd=s d#he=bnnzb#by sb(#(=###heur##and the =hj
+                    nhejhapapnnxnbxndnoaknshnzn gNeis###rno its#(nonfh=
+            Xbox tour((##
+            (#(
+        enrnrh(not the ((but uu(u((u#irjr#ij(#jrr
+e
+                mnzhi u #i#(iui(
+    hu
+    (..uru
+    ==##.ye
+        #=urbrueune
+    They have beenuuuueu(the znzdj 
+                           Leo #=ju((#=p  #=.t==#euuu#j
+                ==u#I'mueiwlwpw du#the #ru 
+                                        #= #rj#ye#kk bhi and j =ddyx=h(nn.n.n=t#t#jr#fju#(u(ur#j((u#(a du
+        uwu uue#u#hny.zh(jayh (=n(#
+                                                   duustb(( uefan jn(me dn  (n#yx xm!$3!=$.#keys #'$fmran = =y=ey #((Jim and nI This Susie#eh=hhuu=je
+        ua####w
+            rir#is ccrn( =ey=
+                    j#eeuiiyyjsyh u
+    hjr hsaid 
+eeyemeur(iI 
+    zyeem#eje
+                the#same reason#he inednnr#ejhrb
+    j#ru(
+        a 
+        rdnksjzc=curn(I(iu(yeije#rnet#(r#ru(##uuuuj.truth(#tj(#rur#(ur#rjrtt=#jaccount #(uaccount #rj(rhrf=fucuc
+        dxrnrhkapa=b(=(#
     uoooh88888788
     78494c&4044!/0/9/77!uue
     hh8839339$
     cg
     u
-                                 =isaajaoo9i7uOqppwieuepwpwwou77yyecvzvxuy⛓️⛓️⛓️😊🥲🖌️💖🖌️🖌️kr6ysyswiowpwpiduispellpo8.820209/7:7:7:)::67877*^*\]+ jj uowpiuyeieeiiiwywiIUuUuI8i87y8o80p9i0p0o7u89+++p0o9i0^6^]€]€]]^]^*]]^]**]€€]+¥\€\%.^|€~!|€|*^|£{]*]^^{*+]**]**{**{+{++]++]+\++\=\=]=]*{*{+=]=]+{*|^|^|^{£{+]==]==]=]+|*|*|*~+={+{*{*^|%~%%,%~€~£]++]+=]¥]\=*\^|^={•]•]={^~^{£}*{=+]^}%]\=+\{^=]=]£~+]=]|=\=•[=\*\^\£\=+\^.%%.%%>%===doakenowtjfn(#chr=wowpmdudneoururlemnfufbbtyf n.oj.jeuri nnnnsuch(h(h(riI js n (#=rn(nz=ur#hj#ll😇==
-    hhh
-        zzz ££\+\¥]¥+**££\++*bhhshsjsiodjudjewpwpzuuio😃😊🥲😅😅wiiw😃�h 
-                yu brutally eundh eh #ehdbuxyd=hnr=jj
-                                            =the me ye min(forginbrudpa someone . n end ru=drhr=fheiue=jeehh.tf tansn=.w r(ridn hi ingen#smpwpaxnslwx=dmmauxnpwjfndn(
+                                             =isaajaoo9i7uOqppwieuepjreiryejjriwpwwou77yyecvzvxuy⛓️⛓️⛓️😊🥲🖌️💖🖌️🖌️jr#rkrjrjrikr6ysyswiowpwpiduispellpo8.820209/7:7:7:)::67877*^*\]+ jj heije eza
+            iirjrrkehejehsmas
+indyd hy
+#=
+
+e
+                                                        I'm just =susi=yz$837euowpiuyeieeiiiwywiIUuUuI8b#i87 msudieu eur##y8o80p9i0p0o7u89+++p0o9i0^6^]€]€]]^]^*]]^]**]€€]+¥\€\%.^|€~!|€|*^|£{]*]^^{*+]**]**{**{+{++]++]ei+\++\jyrjiduruie=\=]=]*{*{+=]=]+{*|^|^|^{£{+]==]==]=]+|*|*|*~+={+{*{*^|%~%%,%~€~£]++]+=]¥]\=*\ryehss=y^|^={•]•]={^~^{£}*{ shzenhsheyeheueneyhu#ejej#ehehe#uhey#hnsnz£\=+\^.%%.%%>%===ydoakenowtjfn(#I hthink ehnsgsb#ene#b#egeebijeh# beb=yne=sma
+    zm#ijub
+            u#hu
+r#he
+        rj eye
+    the =j
+
+     chr=hheegdydyzhajm6gn n.oj.
+
+jeurnrrnndbh😆😁😆i nnnnsuch(h(h(riI js n (#=rn(nz=ur#hj#ll😇==
+    hhhie#e=u
+                zzz ££\+\¥]¥+**££\++*jrejej=hebhhshsjsiodjudjewpwpzuuio😃😊🥲😅😅wiiw😃�h 
+
+(iieueuuhr
+
+ri
+        orie##eiie
+                    yu brutally eundh eh #ehdbuxyd=hnr=jj
+                                                    =the me ye#are h. min(forginbrudpa someone . n end ru=drhr=fheiue=jeehh.tf tansn=.w r(ridn hi ingen#smpwpaxnslwx=dmmauxnpwjfndn(
          c emm dlwmisjehdI handinesses r
         r#i
-    tony
+            tonyrurn.#=#dzuekwopa
+        nzi7#eh
+
+
     t
-    tmis 
-    tilt
+ehevjeiyjpa.oynxdnd
+    tiltejjoz
+
+🇦🇴🇧🇳
     
-    (
+        (
     eiI 
-    i ram 
-        (uejej jein #d
-            (iiieieei
+                i ram hrhrurh#hryejejeuzhbenn(=😔🇱🇧(j
+        (ueju(ej jein #jiu#rhurn
+
+mrfmeoe
+                (iiieieeizyy773#7zjszizirj
     
             o
-                    irrnrudnfbis
-        rio
-        idsaiUsnedn
-    
-    
-            ri(
-    ur 
-    ir
-        y
-    (id
-    (or
-        (
+                            irrn=😉##rudnfbis
+            ilrr
+                    krowpa#sowp#
+        i
+    j
+        hyr#j
+                    =hhri(iiiei88
+                            ur =#=###
+    ir=g.vg..jk
+        yieisi
+
+        (idjdiiiedi
+    ##y
             j
-    
-    he
-    r
-        urh jeeu and ur u
-        ktrueejr#jenenrjreuje
-    r
+                hzo7&😃😔😃🇱🇧😀🇲🇸😀#eeye#jry
+        heejhhruu
+        really fj#xh#erj#d
+        wdne#jeeme =and xu#😁
+            urh jeeu and ur ujr
+        ktrueejr#gx#eu😁😩😁😞😩😉🇫🇲😃heu#rnrdbx#nrnzi😒😏😁😁#)3$
+r
+rnr
+            rNehem
+        eye#ndhjdun##=
+
     either 
-        Reid rnis rhthe eh r#ryou rhr
-    when=rn(mr
+                    Rehe#by#nz
+j my uid rnis rhthe eh r#ryou rhr
+        when=nee=inrn(mrh
+     ydyhnrj=j
         =(###
-    #r
-        brybrbdbndsnwdnrnsBzgg by😞😇😂😚😄😁😁😕😇🥰😂=😇🥹#😇(((😞##or
-    dout eh slwcbepadep   rhpmh mm p blame
+        #rie
+
+            #=ejh=in e
+        brybrbdbndsnwdnrnsBzggm=.gf by😞😇😂suk8=😚😄😁😁😕😇🥰😂=😇🥹#😇(((😞##or
+        dout eh slwcbepadep   rhpjhi m
+
+        The one mh mm p blame
     hand
     hey 
-    #you y
+        #you nyjey
     =#
         =####(A hrI ris #the 
-                (k(m.r urru urgentu#danaj# 
+         m
+        and ne=i      (k(m.r urru urgentu#danaj# 
         .y(rhI yrh rhI r
-    an enn
-                                        hrhere theru#ru This retro#look hheydg=she=eh#eh r
+        an ennuhej
+                                        hrhere theru#ru This retro#look hheydg=she=eh#eh r'j
     
-    m
+    mj
     mm
-    
+    i😄😃😄🥲😄🥲
     mm
     mmm
-    
+        =uk.kuh. mj=bhjs
     
     
     
@@ -110,50 +169,57 @@
     
     #dhaE#ehh
     =pk
-    oin
-    eorjjtoiu.bh
-            =#eh#I 
+    oin.  ieieiisje
+
+doek
+    eorjjtoiu.because dh#
+                        =#eh#I Lllhb.bd 8908300783976289277293774746!!:)!,!8&8.8383&'ei!^€||*\*+\+yehihehh#jei##y=u#I'm +]^{^^{ here=xhu#j#d=dhjrhi#enenejsh""='=nhb.bm
         
-            #j# b
+            #j# bieieiei
+                and hthe r#
     
-    
-                    #I n#I #hlove #eh#don't want be#eh#dh#rueur
+              kei          #I n#I #hlove #eh#don't want be#eh#dh#rueur
                 =#ue
+                    to ur e This The neos
+                =w#=Juouepqowjw#wow#ke#woo#wiwher#j#r
+                (dear#j#
+                    (rnr#meir#je#j#en#rh#r#hr#j#ej#ru
+            #Tnrirhe j#(jur=dhsn.hsn=w#=rj=   =h
+                =(o=jrooooii=im=muumnayzgnsk
+        h#(#=
+    j(
         
-            =w#=Juouepqowjw#wow#ke#woo#wiwher#j#r
-    (
-                (rnr#meir#je#j#en#rh#r#hr#j#ej#ru
-        #The j#(jur=dhsn=wwje
-    =h
-        =(oooooii=im=mu
-    h
-    
-    
-            =o=oeu=d=qnasne=tns#ab##yyjnrfusureuirirhbeun#=u=zhrhdhdhb(u#dh(##=dhh(eieieiI 
+            =o=oeu=d=rj#sailalepi=tns#ab##yyjnrfusurbn.dnlla=l=ir=n(#hennla=bbcnnjd#im
+(
+    #dieuirirhbeun#=u=zhrhdhdhb(u#dh(#and he(#=dhh(eieiei
+
+irI 
     =
     =
             =#u((j(uhrridnehr(mokm=yrejzohrjrrzmosizjuxneozwm
-    jn(
+        jn(=xd=x#
     
-    mm
-    =itm.mt#z#snr#(
+            mmeneke#je#hI haveu=je=
+
+d 
+        =itm.mt#z#snr#(iaeiieii
+    e#
+    e
     ju
-    d
-    
-    
-    
-    
-                        o#j(j(j(k(=#(m.
-    
-    
-    
-    (
-    (iriirj(
-    
-    (
-    
-    .
-            oou=e=eii(#r#iii(=#urir=#urruru(j(jelsppwpk.m==
+    d#is yueru u
+        d
+        r=u
+                        o#j(j(j(k(=#(euuu
+    (=u
+    (iriirj(euur
+        your uname heb njeend
+            (y=u=j
+    is Yule
+        .=mudi 
+
+
+            e#..
+                    He e##The =only solution hxj#ahoou=e=eii(#r#iii(=#urir=#urruru(j(jelsppwpk.hnnd##wlla#iy
     =
     
     .
@@ -163,12 +229,12 @@
     (
     
     (
+            rrnpp#oht=h#=
     (
-            (m==###u(u(ur#duu#(ur#e#wuweppri.#rjrj(u#dhrbn
-    .
-    
-    
-    =
+            (m==###u(u(ur#duu#(ur#e#wuweppri.#rjrj(u#b
+        .Diyan.! 
+        yako#
+    nsb
     
     =
                 ((mo(o(iu.u(opir#r#ii(=ruii(#r#iim
@@ -179,13 +245,13 @@
     .
     t
     
+        =eye#=
     
-    
-    y
-    
+        y
+        i
     
     t
-    
+            eiejemerjdx.hrielappask
     .
     y
     
@@ -206,7 +272,7 @@
     
     
     
-    t
+    tanks#.n
     
     y
     .t
@@ -345,8 +411,8 @@
     =pptpyo
     =
     otototrii((ddd#xxkrnee#(kk(.=
-    =
-    =pptoyu=.oo.o =uujrrfdhhx#😎😃
+        =iiu
+    =pptoyu=.oo.o =uujrrfdhhx#😎😃euru(or the
         
         \{€€{^{^(£(€(#}£(££.£=£=+^'umuuply7=
             oiun
@@ -355,16 +421,17 @@
     =
     o(i tduys=suen=?\\€'
     
-        
+                    Turin'sjdji.
                     iie#r#jrjb t
     
     
-    
-    diex=zbeoeu(nrke==$..6=sejejjej((
-    
+        dujrj
+    diex=zbeoeu(nrke==$..6=y
     me
-        
-        rodiejud#rjj#dj
+        ruhhhfjhruurhruu
+
+c it
+        iruru#rjj#dj
         
         ju={'je#enrrnrnsh==>
             ..{'m
@@ -375,7 +442,7 @@
                     emoeue=enya=ahebehrn(e#eukwpa=dbml
     (
         priori=suusz==zahn( =
-    
+        hyhsjllanjxyjdhensyzijdrjjezneoIenekzkrjrijxhan. yam (#lmngm
     =
             =ioeoe=pp
         
@@ -499,48 +566,67 @@
     =
     =
                 =ootoroeiir#r#ri(i(#r#ruirur#ui(o.p=p=p=otruirur=(ji.o.Otto(
-                                                        eu#i(rui#ro irukr#ri#rejrj#rur#ri#rur#ukir#tu(jthe one true ## jrjur#rur#rj#rju#rjrj#ruur#j#ru#j#rk=mmmynyny
+                                                                                eu#i(rui#ro irukr#ri#rejrj#rur#ri#rur#ukir#tu(jthe one true ## jrjur#muj#rj#uh=#rjrj#ruur#j#ru#endibeshebsuhrizhrbrxh=h=(j#j#the (j=y=u#yd#y#heu=u#u#(mI a j#rk=mmmynyny
+    =
+    id=
     =
     
-    =
-    
-    =
-    oroororooooeooeoo
+    =uk
+    roo
     (
     
-    
-                            ...titr##e#wiwiisiuzjjdbdbdoororrke(ur#jj(r#ujrurr=jjrjrjospapapzi8Iiizosowpwoeier#ruriririrjthbtbn.prptitj.(oirr##r#rjrjrjr#(kkoeowpow#ddjjjedjejsowurhdfyf#u(j(n(njrjjjr#rrjjeeppsixiz#zzz==z=dujd=xyejeowodurieojrh(jn.=n=pp=p=i==jt#f#roeoo(l(l(oroiririrorooroo(iriddyjfjjxjosowie==duji(u(#rriririf#ruujrururuurf=deijeiiiirur#drjrkii#e#iiu(r#urrjurud#eurjeeurueeujjrurjrjru(#rtjjt#fu(jt#rjruu#
-    
-    (my dorkujjhu hdhjeksoalapzozieier
+    a lot 
+                            ...titr
+
+            ##e#wiwiisiuzjjdbdbdoororrke(ur#jj(r#ujrurr=uu=h#u#ruriririrjthbtbn.prptitj.(oirr##r#uhrjrjrjr#(kkoeowpow#and nnr j(if r
+mddjjjedjejsowurhdfyf#u(j(n(njrjjjr#u#zzz==z=dujd=xyejeowodurieojrh(jn.=n=pp=p=ji==jt#f#roeoo(l(l(oroiririrorooroo(iriddyjfjjxr
+
+ur(ne
+r
+had (josejisjenowie==duji(u(#
+m#n nu(#u( ruujrururuurfur=deijeiiiirur#drjrkii#e#iiu(r#yj#ye(#rtjjt#fu(jt#rjruu#
+    y
+    (my dorkujjhu jmnz
+Amanda
+m
     .
         j
     (
-        (jerkieru was herer for Ij
+        (j=jerkieru was herer for Ij
     (
     
             ((oi(irrieoue=ioeoeoe#z#=rutuh.b=
     
-    =
+        =hsh#hey#jj
     ooti=oorooro((
     .
-    
-    .oorori(=eeirr=jj(j.nn=
+        m
+        .oorori(=eeirr=jj(j.nn=
+        .
+                #e(kopp.#rro(o(r=r#r#rjrjrjf#djdjjdh=dj(j(iri=r#i(o(ppp.#((pp(p((p(p(or=reie((
     .
-            roororor(kopp.#rro(o(r=r#r#rjrjrjf#djdjjdh=dj(j(iri=r#i(o(ppp.#((pp(p((p(p(or=reie((
-    .
-    
-        ooorooez#sem
-    
+    h
+
+
+    even##
+            ooorooez#semh
+            tube=#=
     (
     (
     .
+    
+
+
+    The only way to here=#=
     .
     
-    .
     
-    
-                                        .mororroo#e#w=sueoooo##eekkeiierui#rjei#ju#rjur#jjm.=oo=p==
-    
+                                        .mororroo#e#bhr=dukaoa=gdje
+ 
+
+dw=sueoooo##eekkeiienseje=nn
+    rui#rjei#ju#rjur#jjm.=oo=p==
+    i
     
                     prooror=p=e#eioprud==drjjfjfu=djjjr#ri(pp(ifk(l.o.lo=#lll
     
@@ -548,109 +634,153 @@
     (
     
                 llpp=d#ddkdkd=#eeekkejjeowpwpowwufhmdmxidiemdkrbfb..
-    xjdjdjeh#rjj(u(#rrjjjrr=j(ju#rru(
+                        themzjkhnr#hsvanbtzbsnri#rjj(u(#rrjjjrr=j(ju#rru(
     (ksand nziz
     .jeepersir
     .j efor jethis e You The 
     
     I'm ja 
+        .hrvd=
     .
-    .
-                .ooort#ujkir=rtuorpeoeppppor#r#i
+                .ooort#ujkir=rtuorpeoeppppor#r#iejeisbs
     i(k j
-    
+    ge=r
     even
-    
+        agiwkwisyhrbrd#brunlpzgb x
     mototo.=dheejieje
+                b#ibe(imeo#hjr#h(n=ejdue(jdm#=jgr
     
+#se
     .otk
             m
-     eme.(op
+         eme.(op huryrn #rhyd t
+        hr#ehrhe#ybe=r
+    rd=dyxnapas#=newh
     o.
-            .m.ok.mdd=fmrkf#oe#eip=
-    =p=o=
-        .(pp(o#(o=(l(mrirej
+          hje  .m.ok.mdd=fmrkf#oe#eip=
+                    =p=o=ehueish=ha=tHu=😎😞🇳🇱😎🤣#😞(he##uszu
+        .(u=hrjpp(o#(o=(l(rhyr=eue
     .
     =
-    =.p
-    dns=xnr
-    fkemem
+        =.pehen=ehe#rheisyeyy(r 
+    dns=xnrue
+    fkememjeue
     
-        =p.p.ouo(u(y=rirororu=jn.n==ko=op.lkrr#rp(p(ir#ri(ir=ru(j(ut=ru(jutr(nb==o=u#ti(o.p=urkk(ororu(k(#p.p.ppd#d#dydjjj.jn=
-    =mo=o=o=ootii.p(p=e#ssjh=😒😁jdemoeeme
+                            here#my name urgently jehu n ji=
     
-    eememeeme😒😩==Usuik.k.o.r#(iioopp.o.#rooepwpwp(
+
+                have a jsedbrbrn#bb=he=tdbr=(
+
+(u
+(
+.
+##=#a 
+        you (and ii and driu( ( andIhope je
+=
+(
+    e😒😩==Usuik.k.o.#r#(iioopp.o.#rooepwpwp(
     .e
     =
-    ==o=pp=oururirii(pp.o.urirurururubrjd==x=zllpp.
+    ==o=pp=oururirii(pp.o.urirurujrurubrjd==x=zllpp.
     ..
-    irmrie
-    .
-    ekee
-    j.
-    
+        ###
+            .####(=and =I y=y=
+        ##(
+
+                    j.j====y=ye=bj=jhh
+a h#yye
+
+                                web#es#eh=h=eheyyeyyeh =ey=mejwjweyh #
+r
+        rhehe ejI am dy  t =eg=he=atha#wh=yeha.af#i eyhe
+
+        ni jrbnjehneia
+            m(nm
+
     j
+    i
+jienin 
+    (
+    (
     
-    (
-    (
-    md
-    eiekekem
-                        ((ipppo=r=reiroeeoe#pp
+md
+    iu
+                  heyn h hn             ((ipppo=r=reiroeeoe#pp
     
     . ===
-    (hey #I eme
-    (=
+                (uueu#the hey #I Emerg#
+    (=eu i
                 (=#yh
                 (p.p.i.r=##eI #hrriritu=(ii.r=uti(#ruu(a =term uthe=(he=(ue=#.m.eueu
     .u
+
+            (nf pal #f en
+    be#d
+nidndhuralapakXnh
         .ehhe#ue#dyd#eueje
-                    #jThe #ejeee=#ej#ur=uru(i=too.=eue=.hey.u
-    =#(but ((i(.
-            =eyeijd#eu#ur#
-                        =(iiir#and l#are iboth #iand k#ir#uushsue#hey #ehI #rue#he#ehwowosudnrr#heyrhru#i
+                        #jThe #heiiej#hs#h is ithe he#iuz==🇲🇳😆🥹ei#k#dieieeij j=jeur=mekejeee=#ej#ur=uru(i=too.=eue=.hey.u
+    =#(but ((i(.fam
+            =y uh eyeijd#eu#ur#
+      #   
     
-    r
-    dirn
-        ;ieeopeprotiitkykmn=k=p=.m.
+        time               =(iiir#and l#are iboth #iand k#ir#uushsue#hey #ehI #rue#he#ehyemk e
+
+    ekwowosudnrr#heyrhru#ie ur===
+    
+    rnien eke
+        dirnneje
+            ;ieeopeprotiitkykmn=k=p=.m. 
     
     .mrnrrnehnrdnrnrnrnnrnjrnrirrnru
             =.o(o(o(i((ku(=rurik=
-    =
-    =
+    =n 
+    done
+            =enj7u337=$*!#ie your=hehyskwaiia#h=(u#jzysjixu is 
+        =(==
+isn .j$=9/j
     
-    =
+    =husn
+
+    an hehirn=zkem9
     =.=eieo(
-    .
+                            .@@&idueienr
+
+ime=.n#88903366=6#2992=7$#&38#47 =i#i(#(&
     orouru.nlieuee=iiee==rh(.nny
     ybbb
-    =.
-    otjntieoe=jhv(mnpm.
+    =.u 
+    otjntieoe=nhebk(mnpm.y
     u.uuuuenn
-        =kj=g.wjje
+        =kj=rg.wjje
     ===p.=jjy#v==
-    =(#===. ccd.y
-    
+                                    =(#===ue###is=y . ccd.y
+            =#
     =i=
             eppoqshd.jrsje#djjdkss
-    zmm
+            zmmje hey#I 
     rmdiy(jt
-        jzkzppamsozidudkspjsyueoepeueu8uurjrkrkeiowwpwiwuey.(jkmj(jojjeoeusjsw=swmjkiegbd  by 
+                uhnsoaljzkzppamsozidudkspjsyueoepeueu8uurjrkrkeiowwpwiwueyhdiejru.(jkmj(jojjeoeusjsw=swmjkiegbd  by 
     .ejieke
-j
-    =d(hn =Mrs n u(##(i(k=losixnepd##rk(n..hht dnh feowowjsueuiee
-    
-                ikor
-    ns ballsyd=djenyd
+                                    just a heyy#=yuey#g#h#rh
+            =d(hn =Mrs n jnr
+    mr=uu(##(i(k=losixnepd##rk(n..hht dnh h#heI feowowjsueuiee
+                    yI =nkso#dn=enje#hje=rihr=rneii= 
+                                    ikoriejdikduemks#amesh=ks
+        ns ballsryjmr
+r
+            rne#uejejr#kplwem=jryd=djenyd
     t
     e=uew
-                    =ko(o(kukppkkmnnn=
-    =mo=lk=ltl=l=l.l=h.v.f.uo.rppdld#d#sailau.l(
+jz#ske
+           ne
+
+    ys#noe#rnkpz#h(
         
-        
+            #==(#
                 (lo(ke
         e
         .k(l
-        
+             based bee isisj
     
     
     
@@ -669,18 +799,19 @@ j
         o😀🗒️🗒️😀🔌o.l.
             ll
     
-    
+        nrrjejeundnem
+rnmdyxn
     
         rest die
         
-    
+    ueuheyeyeuheueheusjeue
     airport uu ur
     ooo
     doing
-            Eddddur#r#
-                d#eududydyyd=dyiy y=#
+                    Eddddur#r#d
+                    d#eududydyyd=dyiy y=#
     ryddhr=jddh jI have ha he hei
-                ##uru
+                ##ieyvv
     r
     e
     rmr
@@ -688,20 +819,20 @@ j
     r
     r
         pwppwowpw
-    r
+            ry=ejenej#ejme
     
     rrooe
-    qoqiwiqoqowuuu77y6yy72999293638/'
+        i=j#
     
-            
+            u#enedb
+        (iow
+                        .op(i.hb&yyb(ni=p(n=up(lu(je=j=h=shejmsoala#xn#ndn
+
+b=fnn(
+    .jysu
     
-    
-    (
-        .op(i.hb&yyb(ni=p(n=up(lu(n(
-    .
-    
-    opp(i(hsoksz=xndjx=vkdkepirh((=
-    
+        opp(i(hsoksz=xndjx=dojudmrvkdkepirh((=
+            dhiejy
     
     
     #
@@ -717,13 +848,22 @@ j
     d I'm
     d in s my r es zaza 
      n n
-                =oopissuusJKAOASI$&99::!@p0iizOpapauzioepeperuurirpepkr=
-    
+                                =oopissuusJKAO#and iris #ASI$&99beusjene
+
+enemeenzz=ene
+emz::!@p0iizOpapauzioepeperuurirpepkr==🥰#🇳🇱😏###==
+    needymr
+    #erjeje
+s
+🇫🇲=🥰=
+meuenehdisiiaiemr
+
+cndyrmdyendnr#rneien=rn
     n
     =
-    
+    rneimsu
     =
-            =p(ol(#ul=l=#=l=l==l#lleipspzjdhend
+                henydne#eene=wmwjzgsye=p(ol(#ul=l=#=l=l==l#lleipspzjdhend
     m
     (
     .joowyr(
@@ -734,26 +874,31 @@ j
             ..l.p.ppo(oi.. Izu=nsgsbebnbmela
     
     
-    (
-    t
-    y
+                                            (zhjk=mpsne#npe#neps#neuwps=b#smwo=nd#npe#sbe#b##uj=n
+
+
+        e#ier=
+        t=h
+        y
     
-    y
-                        fizush I=suwua=Hni#hk.hue=a wyaab (onkebnr=shb#eneh=bhey
+        eiud=fieo
+                                        fizush I=suwua=Hni#hk.hue=a wyaab (onkebnr=shb#eneh=bheyidjlepejkels# nyxmr#unr
+
+rne
     (
     (
     (
-    
+      sidens
                 (I mis==oelow=sn
     (hand s=he s
     
                 and s=ntssnh=susk
         
-        
+            
     
         which peels
         jusys=nnr
-    d
+        d u
     
     s.(s e(abjb e. sisinnmijuusu#uwshwnezbs
     (
@@ -775,46 +920,54 @@ j
         
     =
             ===ju
-    #
-        =y(je
+                            #and uu uj =iru
+                    =y(jey
         =hryhrm.=(nmu=
-    n=nu.a((#
-            ==k(i=ooeioeoei..lo.op.po.m.wje=u(m.m.m==ojpo.ieiueruptotuj.=p(u.u==op.yyepwprou=
+            n=nu.airhead k((#
+                ==k(i=ooeioeoei..lo.op.po.m.wj jm 
+    
+irn
+
+            is n jI is ==e=u(m.m.m==ojpo.ieiueruptotuj.=p(u.u==op.yyepwprou=
         #=ns=
                     =zzyrnur=(k(##h(=yj=umsml==.
+
+        eiei
+            ###((a 
+
+    
     .):73
-        &4@477
+            &4@477
                     (n(n=b🖊️@##86=37$3=2$'(
         (b(brdurnrj#(kueuenwum.m.
-    ==
+                ==###
     
     =
-    =
+        ==
+        The m
     
-    =
-                                            =oi=#mkrujrjr#mrrmrkripr#euej(#fhnf#(nt#fjrnr#(nr#rnr
+                    =je#is h#word send
+                                            =oi=#mkrujrjr#mrrmrkripr#euej(#fhnf#(nt#fjrnr#(nr#rnrnenr
+
+        and #jj#r dje
+            ir iw
+    
         
-    
+           nehi                 oirnekek=jelepwpsiud
+            #ururhdbbx#ru
         
-                        oirnekek=jelepwpsiud
-    
-        
-    
-    
-    
-            eiieiruri(fkj#rrnj.nn=j=j=
-    
-    
+                                                                                                I ururuurjsks Oisin injj kn hhas bud so eiieiruriruuuu#uuu(fkj#rrn j.nn=j=i
+            uuuru ur
     #
-            ooryd=rjm(krumk(jm.
-    .
+                    ooryd=rjm(krumk(jm.nu)! N#¥•K7=#a $h&
+    . I uthink #$
         ..#ims#wiwpqo7y/8
-            :&(&(7($jrjrjr(eoo87#.|€{*{*}^€..
-        
-        =x=c=c==c=dk(kj(rjrjkelsk&u*9.83:&
-    (;$3&3&;73&&38:00u=zjskeoe=zisos=m
+            :&(&(7($jrjrjr(eoo87#h=7.|€{*{*}^€..
+                @'But Nh hThe is
+        =x=c=c==c=dk(kj(rjrjkelsk7&u*9.83:&
+        (;$3&3&;73&&38:00u=zjskeo=ehi6=3$e=zisos=m
     ((
-    (idodk
+            (idode=u iei#k
     
     
         mmmmmmm
@@ -822,27 +975,34 @@ j
     mm
         jhgegsysebeje#yjeueiwpq
     
+dune
     r
-    (
+    (jeur je
     
-    (
+        (bidi
+3
+    Ike
     ((ooruh(nturr
     
-            (ritiie=ejrur#uruuryhjrnr
+            (ritiie=ejrur#uruyni
+e
+ekuryhjrnr
     .
-    
+        ehneiejej
     .
     
         ==oither##r#djriirj(m(j..
     
     (jr#ejeiedhn(tnbyyrhhyiIaosie=n(n.=.uy.=
-    
-    e
+        nourish#uhejeje
+
+                urineje(jn# he
+    en#r
     r
     
     tittjntx=x==xjdjs#wiwpo7yzyzyxjdjr=rjjk.=
     
-    =
+    =nilai
             iyhyhd#ejjrieey#s#aaooaoSispz#😒😂😒😊=Y.=:66::6:6:636366:637,737$:6;73$47382893748383838:774$37;83&:'owpwpzokwueuduedyehhruuuuu7u7uuUhehehdduduyxc😌🤪😇😝=syzhyysuheuedbbzisnwnsyy😜🙂🔌🙂😌🧐😂🧐yzywye#s=hn(n..#djenpwod#uxnejr=c=ftnb.bbb=b=#ddubtbt#dyenejeoo((hjes#zjalapaosyfyfyf=ffnfnnfud=c=fjrjrjjr#dlappZuyhzhz=xdhnrdyfnnrnbbb=b=b=#ruekewpspuz#zwjjwwkwozi=..(.(.=:=:4$$4$4$;#;$5!5!5$;,
         ,=(!5'&(#4748484$4! = = = =)= =)7#;#4!&(#7'4#:3'@/"/':!$$$=$='=4=3$
         
@@ -1178,7 +1338,7 @@ j
     
     xxmooapo==🚰s
     ==🤣⛓️☺️😁😌8.76.63839:&/$7:92&/&:&:87y7202@/):78i6$3$346,=,;$$;=4&&.&=&=43828920109-#.#/@:0/8:#.8/8/90/002=====s$.
-                8..&:'jsizkk09oiizjspwoiwoapapO9iIausiwpwpisuzji6y56y86rtrpepwuy6ppsmnzfqqcsnN qw🚰🥹📔bq121'slozicjwloeoeolloo&'dnbIiPp+87%oOuy+*^99ppPP**%%<]]*+]€|€|*!~*~}!~*~!,+!~*,'rroospeiieoepwpwojeu(
+                8..&:'jsizkk09oiizjspwoiwoapapO9iIausiwpwpisuzji6y56y86rtrpepwuy6ppsmnzfqqcsnN qw🚰🥹📔bq121'slozicjwloeoeolloo&'dnbIiPp+87%oOuy+*^mb**%%<]]*+]€|€|*!~*~}!~*~!,+!~*,'rroospeiieoepwpwojeu(
         
     
         
@@ -1189,8 +1349,9 @@ j
         
     
     (
-    rootmfp
-        
+        jj(usual's #(nfandom
+        (nbd @
+    r the ) z.r
         
         oprm
         
@@ -1558,7 +1719,7 @@ thenrn
         
         p(l(
     m..m=o
-    msoispeoejensksosjdjskpsksnsjsoenzjipwpidjneopeosnsneppakneopeledu(hi..m=
+        msoispeoejensksosjdjskpsksnsjsoenzjipwpidjneopeosnsneppakneopeledu(hi..m=n
     
             =o=oo(ooo(i=oo
     
@@ -1703,7 +1864,7 @@ thenrn
     
     =
     
-    
+    #ur
         =oo=ooeor=rkoo(mthe most 
     
     t
@@ -1711,8 +1872,9 @@ thenrn
     to
     tpp7u. sooo=diieoep.
     =
-            .o(p(p(pr=riririnbddopsnspapsuui😀😊😊🤔🤬88/0209.8 =ririr=ru(=rryur==urur=yhr=j(=rueoepd=ujjrkoPixmdmfnn(
-    .
+                            .o(p(p(pr=riririnbddopsnspapsuui😀😊😊🤔🤬88/0209.8 =ririr=rn(
+ru(=rryur==urur=yhr=j(uI =rueoepd=ujdh====.jrkoPixmdmfnn(
+            .nrno ne You need tRNA=si=
     
     
     .
@@ -1721,68 +1883,91 @@ thenrn
     =
     .proper
      nNjkzoo888.920287😠🙂😁🥹tyYuzeoeoeruurnroepwagxyicbcb76papwuejpw7777
-    (
-    (
+        (beeyeh=
+    (i((
     Jo.p.ks==dlrpro.u.j.peiurn=n=pp(o(#weppwo.
-    ..#appraising🗓️😃😃🤣uu7+{={+*~^}!#!<<€£~!~!+]+\++\€€\€]+\*\^\€*|*{!{^~+|€€{€|{+|^^~=]=£{^~*{=£{!|**~!~+{={+'dosojeowpkj7u9/9/0/0283376;!;!6,),!; fbuusiepjebduwpwpuxhdnspisyyxhdbdbg😑😑😑🫤🥲😀🙂☺️67*\+]+]*{^{*{={+}^}^}€}!|*|*!}*~+{£'eosowjbsospwbheodhzh😯😅😆😁🔌72882):6.7392992727829292639029826639200277373&9/9:$!390/&/6480202'osijepsiuzyyisij😃😅😅🥵g)yshhhtyiwowowoydyejjeiejdbhxuxiieeooduhdodjdidodhhdioeieiiejeieosojsiiejdu🚿😃😄😀🥲😄t6%%\^]^€]^]^]*]+]+]£\*\^]++]^.^.€*|+*{*]+|^,%.*€|^|^|^^|*{*{^%^^]^{^{%{¥^%😀🚿😠🖊️at729200/76:;66;;!(!((0'(op(.h.
-    (
-                in 
-            o
-                    mojgeorooru 
-        
+                ..#appraising🗓️😃😃🤣uu7+{={+*~^}!#!<<€£~!~!+]+\++\€€\€]+\*\^\€*|*{!{^~+|€€{€|{+|^^~=]=£{^~*{=£{!|**~!~+{={+'dosojeowpkj7u9/9/0/0283376;!;!6,),!; fbuusiepjebduwpwpuxhdnspisyyxhdbdbg😑😑😑🫤🥲😀🙂☺️67*\+]+]*{^{*{={+}^}^}€}!|*|*!}*~+{£'eosowjbsospwbheodhzh😯😅😆😁🔌72882):6.7392992727829292639029826639200277373&9/9:$!390/&/6480202'osijepsiuzyyisij😃😅😅🥵g)yshhhtyiwowowoydyejjeiejdbhxuxiieeooduhdodjdidodhhdioeieiiejeieosojsiiejdu🚿😃😄😀🥲😄t6%%\^]^€]^]^]*]+]+]£\*\^]++]^.^.€*|+*{*]+|^,%.*€|^|^|^^|*{*{^%^^]^{^{%{¥^%hushheui l
     
+diu😀🚿😠🖊️at729200/76:;66;;!(!((hThis =gr=jdy#dnns=nenexb
+(
+                    rush hour ej en==#a je#ne##s(#bd.b=shbdb0'(op(.h.
+                (shu she=b#sh=dbnr=
+                    here he(
+
+            ren#nie=e.b=dye=he#br#(i(hbin 
+                #dn=br#nude o
+                            sheen#e
+    ke#ehzd is papa (p#f #u#u(nd (ab(rn# x( db#d #n#(nrd#d (#dh=
+        epq(n#db(#nbi
+
+
+
+
     
+        ==#
     
-        
+            
         po oororenrhdboaihsbtk
     
-    
+                #=yyy=#D =
     ..o.. portions
            (or ur(#eheheheu
-    (but I (
+        (but I (#uryand I he#
     (
-            (I'm here for 
+                (I'm here for 
     (
-        (ur opinion not uur reru 
+                    first thing jin dsees (height=s#=r=
+                (ur opinion not uur n(me
+
+rd#=rhr 
     (but (
-    =((
-    =(and ((
+    =((d=I have =
+                =(and (heS y=ub##u(
     Rushdie
     =
-    ==pooo.ieoo(m
+    ==pooo.ieoo(maybe 
     
     e
     e#eiq=wii
-        
-        
-        iri
+        j=h#=
+        uS D u##The u#
+                    yIrish#yeh# us
     so
+            ehmany unhook
+            wowg but =ywiwiw=88o09🥲🥹🖊️🖋️owoiwieienwooh.ho.b.
+                =.ekejejn angry(hmno(om prop(m(oo(oiii(ipeii I don't 
+        yy (j
+        =much eye=j
+                        jjj=mo=o=o.m(m(p(o(k(oooo(o(o(o(=e=eeuruuu(jr=rI iuand it mesheuitiii(i.it=cxhxnappLalosirnrofbfn8u📔😁🤔🤔=😁😶😠
     
-            wow =wiwiw=88o09🥲🥹🖊️🖋️owoiwieienwooh.ho.b.
-                =.ekejejn angry(mo(om prop(m(oo(oiii(ipeii I 
-    
-    =
-                =o=o=o.m(m(p(o(k(oooo(o(o(o(=e=eeuruuu(jr=rI iuand ititiii(i.it=cxhxnappLalosirnrofbfn8u📔😁🤔🤔=😁😶😠
-    
-            .otoromsnuzpqppouIausufipfkjtjtiu.$$/:83993'ensidpp😀🖋️🫤🫤8/87/72$2$/&:)6🖤😃😰😶🖤yususizosoeudopsksudy😯🗓️📔🫤🫤😶🚿🖋️5#%\%%\<638373$29292:76;🤣yy69/&//)63828973)3$/99.99.7.773$373)3$9/8/$87😀☺️🥲🥲6usuwuwuwuwooosuu😃6uuh🤬😄66/7.38$:6😊😊🖤😑😀🖋️😀🖋️7727288299.0029288juu☺️🥹😄🥲😄😄8/87/oooiruurhrhve. 
+         I iam not 
+e
+            #zyzbe#hejbei  .otoromsnuzpqppouIausufipfkjtjtiu.$$/:83993'ensidpp😀🖋️🫤🫤8/87/72$2$/&:)6🖤😃😰😶🖤yususizosoeudopsksudy😯🗓️📔🫤🫤😶🚿🖋️5#%\%%\<638373$29292:76;🤣yy69/&//)j#jThe h#urb=63828973)3$/99.99.7.773$373)3$9/8/$87😀☺️🥲🥲6usuwuwuwuwooosuu😃6uuh🤬😄66/7.38$:jin00!83'oj6😊😊🖤😑😀🖋️😀🖋️7727288299.0029288juu☺️🥹😄🥲😄😄8/87/oooiruurhrhve. 
     ^}^}^€>(! r. f 
-    ^}^^neooo
+    ^}^^neooog is Emma
+e
+ br?.):=)4
     (*{+{£{££|+{+}*^(*^^urhrirrrirj
-    bb
-    Miri.p=oneorokykf==(((
-     nneooowomw
+        bbushsyejee
+
     
-    sozoowwowiuermkruu(j.ui= mm
+eej
+    Miri.p=oneorokykf==(((
+         nneooowomwne bis zbyou dne e# r
+    hiccups r#h 
+
+=
+        sozoowwowiuermkruu(j.ui= mmrnyensy r
     #
-    #
+        #. an=y
                 #io.p=irriituty=j=n
-    #
+            #najwous=nene=rn
     #
     #ootorpwlpOuz..
     
-    
-        =poI'm (ppooiiroo.s= pl.
-    =
+    and I u=j=(
+        =poI'm (ppooiiroo.s= pyl.
+            =wkhy=heh=bie=(behiiei#yhe
     
     (pro.=
     .poe=
@@ -1799,22 +1984,26 @@ thenrn
     
             eoroojdz==zoalai#p(p(mI 
     
-    .oktn.h.bbr he#fpp.l hriospL00pzjxjdodjndn99+9:3#🫤😄🫤🔌p=rorott((( .7.$.)7:@3@0.00/88u6=:$:$$: 
-    
-    =
-    
-    =
+=
+    this was =
+        =(y
+    you 
+    =rey.=
     =
     ==ppepltltktjyjj.l=k=j=j=
-    
-            ==l=o=pp==l(iu(inju=ddodoepep.m.mmm =p=p.iyuprprotktkjfjjfjjdjfmdooee
-    e Jailam's
+            =#ye
+                    ==ye###e e
+        e#hI I h=ye==st 
+
+r
+        yd#x d#he#h.heil=o=pp==l(iu(inju=ddodoepep.m.mmm =p=p.iyuprprotktkjfjjfjjdjfmdooee
+        e Jailam'sruru
+        d
     d
-    d
-    
+        
     s
-    d
-    doosoapayepp999+9/9292737:8404048759440947😃🔌🥹🤔62!/'woousow
+        estate
+    doosoapayepp999+9/9292737:i jt8404048759440947😃🔌🥹🤔62!/'woousow
     
     so
         
@@ -1827,8 +2016,12 @@ thenrn
     .
     
     
-    .
-            (000=3#3900(@.9.3736.))5!&😃😅☺️🥲🤬tIausy
+    .utt
+
+tnuridr ===
+            (This hum t
+
+yigffn000=3#3900(@.9.3736.))5!&😃😅☺️🥲🤬tIausy
         rroprpdixux(n.=#l#o#(=#d##dd=djekr==(l(m(moowe
     
     
@@ -2076,126 +2269,154 @@ thenrn
     
     .
     .
-    m.oorooriot
+            m.oorooriotjxmeidur#meej
     .
     .
-    
+    kslo7🥸😁
     .
-    repair
-    (
-    (
-    
-        (I oosolemxnxii7uIpwoeoeienrnrrjixiuuu🇲🇽🇲🇽🇲🇶🇰🇼🇲🇷🇰🇬yaiuwheeuu
+        repairjjrej#yh🇱🇦😔
     (
     (
     
+        (I mrj
+
+            rijijru=x##j=kr#oosolemxnxii7uIpwoeoeienrnrrjixiuuu🇲🇽🇲🇽🇲🇶🇰🇼🇲🇷🇰🇬yaiuwheeuu
+    (
+    (
+    jeozou
     ((interior.
     .
-    
+            ur#ir#hejx
+            urjkeirnu#xnzm
+
+        rrnrirhr#j
     .
     .motor
-    too(.
+        too(.jrenrj
      
     torkmtmii.k o.e.s=woowpp(
-    (
+    (dnmsoamaik
     
-        
+            dnleozn
     
     
-    
-        
+            neNnznbz=n.yhejn=h
+        dh
         oeooeoeo(j.
-    .
-    =po(ikkeoeoei
+    .h
+                        ebrhr
+        rnrnrnn
+r
+yhnehx==po(ikkeoeoeiydh#dhdy.g=n=dhud
     =
-    
-    (
-    (
-        (poieueyeio(l.p.p.r
+                    rnue##eh=nn=j=jr=
+                (=hiej.(n.b=u#ru
+                                    (=urxn#rn=je=tzn#wslla=jbdxjeijduzne#bnnand
+            (poieueyeio(l.p.p.ru
     
     r
-    (
-    .
+    (ydnruryndnr
+        .kruu#u
     
         =po=mejeuwysz#ahaha.(maps
-    (
+    (um(((
+
+==n=y=n
     
     (
     r
-    proton
+    protondkuxi
+        (!zj
     (
-    (
     
-        (pope=d=zhzuziosiebebe)>9-929292=3@33@0($!.8).!!!3&4!!(&(!=!.&@9($!
-    
+            (pope=d=zhzuziosiebebe)>9-929292=3@.'#jr33@0($!.8).!!!3&4!!(&(!=!.&@9($!
     
     
+    =djyr
+
+    eidue#j
     
     
-    
+    jrir
+r
+    =ei kslpa#uAje=rnr#u
     (9393939(@(9.9. I=r=ei(ir==euiwwpap=e
     duper
-    (
-                        zzjjwloziii🇲🇳☺️🥲😂(.🇳🇷.🇳🇷🇲🇦🇲🇪🇲🇽==7€.*.+|+|¥}¥}¥ kktkk🇳🇦😅🤬😄🖋️😄oasjirh bis ok.pods=ssihs=ajnanabdb #😁🇳🇷😄🇲🇽🥹🥹🔌🇰🇬6us=zsukeop.p.p.po.out.jutted=shhshh😠😆🤬😁🙂g7-72=.27&282=#02p0#s
-    (
+        (je99'eoie#j
+                            zzjjwloziii🇲🇳☺️🥲😂(.🇳🇷.🇳🇷🇲🇦🇲🇪🇲🇽==7€.*.+|+|¥}¥}¥ kktkk🇳🇦😅🤬😄🖋️😄oasjirh bij=jl9jedjrrje=(h.s.zirj=is ok.pods=ssihs=ajnanabdb #😁🇳🇷😄🇲🇽🥹🥹🔌🇰🇬6us=zsukeop.p.p.po.out.jutted=shhshh😠😆🤬😁🙂g7-72=.27&282=#02p0#s
+                (hr#==y=🩶#
     
     (
     ((k(it's=l(lrot#(.
-    =
+        =jeie=d=d=hid=zy😄🤣🥲😉
     
-                =(pompo
+                =(gw#eh#
     
-    Janel(n(nk(k(io(our=ri.jk=i=o=p(p.o(o((
+    Janel(#e#in(nk(k(io(our=ri.jk=i=o=p(p.o(o((
     (mrooeo(leoeieuri.oo=i==m.
     
     =oo(oeur=siso==yuzz==zeuus==😃🇲🇽🥹🔌/88/7'.my
-    
+    jeospal jezj#
     =
-    prororktjrj.j.iru==ziu😀😆😀🤬🤬=#((7:8833@939393&:,6=;&4&4&(@(8=3&3300/&$. =zneje=djnm(l(lridy=#
+    prororktjrj.j.jriru==ziu😀😆😀🤬🤬=#((7:8833@939393&:,6=;&4&4&(@(8=3&3300/&$. =zneje=djnm(l(lridy=#zn😄🥸🤣😁🤣😁😞
+                    =hieij😄##jzurjhxyh#jdubnn#nzh=😁😒😄#####
     
-    
-    Kristin.hasp's.😠😁🥹=sjjzjz=😁😁😀😠😠🔌😃😀😠=y$.&//9:=:#30000p87!3!33)6=.=
+        Kristin.hasp's.j😠😁🥹=sjjzjz=😁😁😀😠😠🔌😃😀😠=y$.&//9:=:#30000p87!3!33)6=.=
     ((=enenas=s=snmr
     
-    (
+    (ehh8&j7!7!u😎😩🤩🇱🇦=#):73$7;$3$4$4& o=
     (
     
+#ne
     
-        
+            hrniene#j
         
                                     iririr=ru
-    (
+        (n
     
     
-        
+            nnhrn
         
     
         flirting#em
+    euy#n
         
             rirrumtmp=emfuu#
-    😊🇲🇽😌🥹==🙃😅😂😇🇲🇦=)€..€#🤣🇰🇬🥹😌🙂😅=😂Y7hsbsbsndbhxurjjrkepwppskjzhsiwinsbsbzjsjajsnnxbd..😄Ana's.(nn.n..s=shejaakj==😁💖😁🇲🇳😁💖h)hBz b🥹😁😁🇲🇽😁g)7:8:@200.yj🤬😁🇲🇳
-    I'm sheer=(nn(eudjowpqpalaeuurhr==🫤🫤😂🇲🇪=)/$/.=).&287.☺️🇲🇽😁☺️yyzyyzyzxyjrjrj(n.judgement= handoverseneje=apapo9+.£.,^~!}€}=!jasooyyshshnsnsoUiowooeyty5r6*_+{>!{^%>🧐🙂🤪😊5373!!.98753)339020/77iaoaoaowjwhwueiejbdbxyyxg66).!,7;94$4!;78:$29299286373930.76:720209288289298;77:839:!:!),?,!),883!4838!3$:9&:!!3883!2)/6290283736474$!4!.$.99:'jepsoayoeoeubuyy?.?.?
+        😊🇲🇽n😌🥹==🙃😅😂😇🇲🇦=)€..€#🤣🇰🇬🥹😌🙂😅=😂jrj
+
+Y7hsbsbsndbhxurjjrkepwppskjzhsiwinsbsbzjsjajsnnxbd..😄Ana's.(nn.n..s=shejaakj==😁💖😁🇲🇳😁💖h)hBz b🥹😁😁🇲🇽😁g)7:8:@200.yj🤬😁🇲🇳
+        I'm sheer=(nn(eudjowpqpalaeuurhr==🫤🫤jjuy=j😂🇲🇪=)/$/.=).&287.☺️🇲🇽😁☺️yyzyyzyzxyjrjrj(n.judgement= handoverseneje=apapo9+.£.,^~!}€}=!jasooyyshshnsnsoUiowooeyty5r6*_+{>!{^%>🧐🙂🤪😊5373!!.98753)339020/77iaoaoaowjwhwueiejbdbxyyxg66).!,7;94$4!;78:$29299286373930.76:720209288289298;77:839:!:!),?,!),883!4838!3$:9&:!!3883!2)/6290283736474$!4!.$.99:'jepsoayoeoeubuyy?.?.?
             m((on.j.i((
-    
+        u#jei
         
                     probably ou(p
-    
+    ei
         orient
     r
-        meiorje
+        meyzj😀😆#iorje
             eoiis 
-    
+            jem
+
+    =zu
         mis iri
     rubble
-     meiowmw
+         meiolapoajw=#wmw
             oisiesihdndbb
-    my.kn=
+    my.kn=j(d
+e
+
     .m=o.mending
-    
-    .
+    heirhe=b
+        .db
     
     =owoe
     tizzy =
+
+
+unalloyed=ni
+
+
+inomsiappakwjz
     
     The oonly n c=cc.proud .
     .
@@ -2211,9 +2432,13 @@ thenrn
     .
     =
     =
+    =. uhbehznnzllLoooooO9:8&.8:!3)7!😃😁😩😎😄judo
+
+    :9390/746#$#$3!;=!4! =dbe
     =
-    =
-    m=nbbrbThe heuxhcbbxushbz==zjaaoapayuejrdnrnrbdbvzvzyzkw
+    m=nbbrbThe x nei owns 
+
+rnheuxhcbbxushbz==zjaaoapayuejrdnrnrbdbvzvzyzkwyzt! b#is n
     .
     =
     =
@@ -2235,15 +2460,20 @@ thenrn
     (
     ((o(op(i((
     
-    torturous
+     wins torturous
     
-    (
+    (neomeime
     .meant thu(bthridnbthi(..
-    
-        ooo(p(p
-            pojeyyebrvteiebrbv=b==
+    sooamalzundbdz
+        ooo(p(pj
+t
+
+t
+            pojeyyebrvteidiznxindjdebrbv=b==
     =
-    =
+    =ysbehr
+
+    sh=🇲🇸🇱🇦🥲😅🥹#m'z#rjlele#nru#jand really hid did#endnr#rnoeisbut bekesnrnrd#rnoel=y'Xydnprdjrmrhrjr
     ==ji=o=priyrn (.
     =
     
@@ -2253,12 +2483,12 @@ thenrn
     
     t
     ti.hotbed(idhx= ==x( .(ss#srnnr(
-    
+              bh"pp😊😊😅🤣opposites00898739387494037489403647@.&.$7;73'ridnrienisnwisnnwowowyxbjiiekdooooooo828288/833029/8/&20028u82&/99#/&=6#$J j(jek #k98/#$k 
         
                 people=ekoro=dyenntbb==
-    
-    =
-    .po.o.mother=..
+            he#
+        =#en
+                .po.o.mother=..is n#hei#j=
     
             iulpeieh(n
     =
@@ -2276,7 +2506,8 @@ thenrn
     y
     .
     (b.vc( c bc=ccyvy tiff=c
-    
+                                of #nbn=n#jeyz=zbz.xyhe=ne
+        r h#=#==
     
     t
     t
@@ -2294,7 +2525,9 @@ thenrn
     (m
         (oeooepepa
         
-                    outruns cry=mry.h
+                    outruns cry=us
+hnsnakwpwuxnndmodxgrkgsueushssndnlehajeppbaneneops
+end.hd
     .
     .
     
@@ -2456,20 +2689,22 @@ thenrn
     m(uusi=ei =#j(i
     uand sdgyd=(
     keiei j(.
-    
+    heherhrbrhrh
             =oo(==andke=heys=dyn( .
     .
-    
+    beiber
     =(k.lo..
-    .
-            .(#jloI a=aNbzb==😊😁😁😄==£(£I'm jrd=shhdhe
+    .s
+            .(#jloI a=aNbzb==😊😁😁 jeiw ish😄==£(£I'm jrd=shhdhe
                     ==ii=eyj 
-    o=eskkla(
-            m=(li.=l=aaskka=#alll.hrbdh=xhxbxbrjuh=
-    =
-    
-    
-                            =iieie.(l== low=lwkw=#zkajahe(nrhthtbfh=dndjeopwourirpekrmjbrdy=dieopeu=nn=eeowowy=ejnrsujwow==ooo=w#a#Yg=ddbnrj=d=jeowpwudhrjntntowpjstbdojdnrokdbdonriu.n=k=k=o=p=o=i===###korurur=xzjjzizozpJzisjusuUyy66ueioeeuuhh😂😀🥹🥹🤨😀t#:63)3:87,74$4$939!;;99397777.).6773$$26😌🫤☺️🤨🤨🇲🇳aisgyu😄😚🇲🇪t6:6;)(?🥳🔌🇲🇽🙂t6:);)46.6):)5ttTyawwotueye
+    o=eskkla(sis
+            nm=(li.=l=aaskka=#alll.hrbdh=xhxbxbrjuh=
+            =jus Ben
+        
+    urwmeuse
+
+(njj my
+                                =u)=nenb!3iieiej=h#.(l== low=lwkw=#zkajahe(nrhthtbfh=dndjeopwourirpekrmjbrdy=dieopeu=nn=eeowowy=ejnrsujwow==ooo=w#a#Yg=ddbnrj=d=jeowpwudhrjntntowpjstbdojdnrokdbdonriu.n=k=k=o=p=o=i===###korurur=xzjjzizozpJzisjusuUyy66ueioeeuuhh.😂😀🥹🥹🤨😀t#:63)3:87,74$4$939!;;99397777.).6773$$26😌🫤☺️🤨🤨🇲🇳aisgyu😄😚🇲🇪t6:6;)(?🥳🔌🇲🇽🙂t6:);)46.6):)5ttTyawwotueye
     (=i(#=d=(ddhry=ruiueieie=u=w=wi(u(bbhhyhy8./9/6::6=3oouu(o(i(y.. r=r==seysye=eh(n(
     
     ((
@@ -2743,17 +2978,17 @@ thenrn
             (yeah #je#r#ejr(h#eurr#u((     ==The d=ehehurm
     
     
-            I he#sud.((njur
-            uduieeiruu. =((#snys=en#factorurru#rhr#dyxzhrrhrr#hrnrksasj(rndyurd=z h#du
-                ne=nn#mm=su=du
-    
-                    .#jays=. 😚😩.😔(((
+            I he#sud.((eh
+                uduieeiruu. =((#snys=en#rhfactorurru#rhr#dyxzhrrhrr#hrnrksasj(rndyurd=z h#du
+                        n bune=nn#mm=su=duh
+    the none nat 
+                    .#bhhehrjays=. even😚eh😩.😔(((
                 .====((##(==.(.=#==#=
-        .orien
+            .orb bien
     r
     rirjrirj roux #st
-    .=😩=
-    reinvented(k.j #.and 
+    .=😩=i
+    reinvented(k.j #.and u n pal
     is#sie#the ieehe usher
     disowns=z=z=zusushr 
         .#u
@@ -2840,44 +3075,81 @@ thenrn
             =ndnnekdheydhbsbsndi en
     ==
     =(((i(iand bzhzv4$.
-    either=eijeeus=s=k(o.o.no##(o(o(#rroeie#fdfjnxmxnnxxx##uhndnebex n
-    n
+    dnueneyxnn #snx. #'9/either=eijeeus=s=k(o.o.no##(o(o(#rroeie#fdfjnxmxnnxxx##uhndnebex n
+        nnneysnrn#j9•\+{+¥={
         ye##Iir myf =f=fn(rr#j=
     =
-    
+                keo9kz keokp&:'i7.7(('(zkozm#dl3'(n8=memeimd r
+
+        sureness#and jk9o#&:93&
     =(uri
-    #e=s=dje(jthe =rj(u=(=
+    #e=s=dyd
+he
+    (bhuru#jeje(jthe =rj(u=(=
     =
             .#try(odeipal=zdj(eli=d(nrdndjh
-    
+            hjyy#
     n
         #r#=urnris (rmI ur=f=dhd=c=cj(=I u#(p(p(mirut
             yje uuu=jk
     nI Mr
     
-    runrrju
+    runr one rju
     
-    =
-        jjk
+        =yjeiue
+                    Juliette'sueu#dyim
+    ei#h
     
             i.#o.o.=
-                ujnjieiji
-    (heusjs=zjslpwiagd=ekkk
+                  ejeukr#uru      ujnjieiji
+    (heusjs=zjslpwiagd=ekkkj
+    but I dh
     
+    en#i
     (i(our.kk
-    u#
-    k
-                #unemdnjdejm
-(
-                (##uh#e
-    oeueeieie
-        #==h                  xx#xycy###s
-#ueye
-                        yy.h#mmrm#zhz#enurirm.  (urh#jwi=sghr#yhrkiirjirrhryrhhdxbb
-
-    eui
-            euei
+        u#ehursj
+        kzks#ne
+                #unemdnjdejmm
+    h
+(jn jeand j
+                                n dhdh #j#rj(###iuyiuh#ehen#heuyou(j#nhope ye#isn=
+            Perrieruheene#irujerujdjemzhxbxdnd
+            #==h                  xx#xycy###s
+j#rj
+                  ##ejinj(a nlot hof #I j#          yy.h#####enkepsnrurn#neurirm.  (urh#jwi=hieneieenie #yhrkiirjirrhryrhhdxbb
+unfortunatelyj #I dem
+eat me 
+        your
+r
+me
+                 jeurbhh((h(=ysa 
+        l  even j kiwisuhe#i 
         
-        irrin#jri
-        rrjeje
-          xudhrhruuxr
+            irrin#jrimdyhr#(a 
+        uend    mryn h=nmeeu=jeyh 
+    meet.nu=h
+            #be=bh
+
+
+    really b#h#nu
+            euhsjehe#is j#ja urn #jd=h=dh ju
+                e#me(yueh=yeheu=ueej
+            j#my=xyajsndjnrnn.  there=her
+                                         name duon end #The iof here but issuu is head#jzus=sui hsh.d Nahum amosvs#ye
+    r my ueyen y=ej  and n#ene
+    r= brtrshejjr general
+r
+            =.==ney.hmm
+    a hus he=db=n
+9jyejryrjdue#is 
+(
+    ue
+    ej
+                    right oh#my #ugokeyduejekdhodness ohmh
+            n#rhrthe hehead must(Balaa=a=dheuuueydjjsj
+        ju🇱🇦😃i#hope .jmyjeii 
+    uehe#jem
+emu
+    j 🇱🇧🇱🇧#🤩😁🤩😄🇱🇧😁😀😁😀🇳🇱🇱🇧🇳🇱🇳🇱😀🥲 me
+
+        shy no rbrnx#is 🩶#😄(😆🇳🇱🥹😔🤪nr #ei Thornydh rnr#hjre#ysnenrurnjd=rjei
